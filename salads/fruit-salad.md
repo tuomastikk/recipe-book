@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- 1 cup strawberries, hulled and halved
+- 1.5 cup strawberries, hulled and halved
 - 1 cup blueberries
 - 1 cup grapes, halved
 - 1 banana, sliced
